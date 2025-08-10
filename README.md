@@ -1,5 +1,7 @@
-OH MY GOD OH MY GOD IS THAT NOLI OH MY GOD TOUCHING NOLINOLINONLILONLNINLNONOINOLNIINONNLOI 🖐🖐🖐🖐🖐
+<p align="center">
+<img width="735" height="462" alt="image" src="https://github.com/user-attachments/assets/fdf71823-1acb-49d1-8aa0-25a7e8f35dd8" />
+</p>
 
 <p align="center">
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/69bf0234-7f47-450a-af9e-153dc87ba8ef" />
+cr : desirednull ( X )
 </p>
